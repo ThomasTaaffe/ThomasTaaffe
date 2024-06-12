@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ThomasTaaffe
-- 👀 I’m interested in learning to code
+- 👀 I’m interested in videogames, computers, helping our environment and pretty much everything
 - 🌱 I’m currently learning how to code and to become an Electrical Engineer
 - 💞️ I’m looking to collaborate on any task that could help me learn any detail in coding
 - 📫 You can reach me at tomet1114@gmail.com
